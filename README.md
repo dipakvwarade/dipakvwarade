@@ -46,7 +46,7 @@ I'm passionate about sharing knowledge and empowering others. On weekends, I con
 
 - Newsletter: [Subscribe](https://www.linkedin.com/newsletters/7162546832793927680)
 
-- Training Registration: [Register Here](https://forms.gle/dsMVUQXjuWMSSzSB8)
+
 
 
 
